@@ -4,9 +4,11 @@
 
 Gift: Wörter der Bibel zählen auf [https://www.123-bibel.de](https://www.123-bibel.de).
 
-Hier folgen die ersten Gedanken ...
+Haben quadratische Matrizen mit einer ungeraden Größe einen besonderen Schwerpunkt in der Mitte? Das Element $a_{22}$ einer Matrix $3 \times 3$ Matrix A hat einen besonderen Charakter.
 
-## Inhaltsverzeichnis
+Was ist der Unterschied zwischen schwacher und starker Kernkraft? Kann bezogen auf dieselbe Masse und den selben Stoff bei zwei Kernen einmal die starke und einmal die schwache Kernkraft wirken? Nein. Das widerspricht der einfachen Abgeschlossenheit unserer physikalischen Grenzen. Ist der Stoff oder die Masse zu ändern, damit die schwächere schwächere oder die stärkere stärkere Kernkraft wird?
+
+<!-- ## Inhaltsverzeichnis
 
 * [abc](#abc)
 * [def](#def)
@@ -19,5 +21,4 @@ abc
 def
 
 ## ghi
-ghi
-
+ghi -->
