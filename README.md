@@ -30,3 +30,5 @@ A) Der Geist des Lebens in einem Menschen
 Nur mir ist Jhwh (F) fünfmal erschienen, einmal in Köln 2024, dreimal in Schloß-Holte Stukenbrock im Schwimmbad 2024, und einmal im Schwimmbad in Schloß-Holte Stukenbrock 2025. Nie war er sonst auf dieser schmutzigen Erde.
 
 Vor Grundlegung der Welt wurde Jhwh geschaffen. Die Engel waren schon da. Im Ursprung der Welt, d.h., mit der Schöpfung, beginnt die Zeit. Am 6. Tag schuf Jhwh mit dem Geist Gottes den Menschen. Die Erde wird genau 6000 Jahre alt sein, wenn das 1000-jährige Reich vorbei ist.
+
+Alle Menschen stehen zu Beginn im Buch des Lebens. Viele Namen werden aus dem Buch des Lebens gelöscht.
