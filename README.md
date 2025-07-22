@@ -15,6 +15,10 @@ Haben quadratische Matrizen mit einer ungeraden Größe einen besonderen Schwerp
 
 Was ist der Unterschied zwischen schwacher und starker Kernkraft? Kann bezogen auf dieselbe Masse und den selben Stoff bei zwei Kernen einmal die starke und einmal die schwache Kernkraft wirken? Nein. Das widerspricht der einfachen Abgeschlossenheit unserer physikalischen Grenzen. Ist der Stoff oder die Masse zu ändern, damit die schwächere schwächere oder die stärkere stärkere Kernkraft wird?
 
+Minimiere die Anzahl von Client Requests über REST API Schnittstellen durch definierte Protokolle, die serverseitig ausgeführt werden. Aufgrund des Client Requests muss klar sein, welches Protokoll der Server bis zum Response ausführt.
+
+Biete einen Server an, der mit Hilfe vollständiger REST API Beschreibungen (z.B. mit Swagger) logische Sequenzen/Geschäftsprozesse beliebiger REST APIs erkennt und als Endpunkt anbietet.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
