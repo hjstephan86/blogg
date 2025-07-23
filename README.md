@@ -20,6 +20,8 @@ Minimiere die Anzahl von Client Requests über REST API Schnittstellen durch def
 
 Biete einen Server an, der mit Hilfe vollständiger REST API Beschreibungen (z.B. mit Swagger) logische Sequenzen/Geschäftsprozesse beliebiger REST APIs erkennt und als Endpunkt anbietet.
 
+Wer die Fourier Transformation anschaut und meint, sie in voller Entfaltung sympatisch belächeln und ergriffen von ihr sie anstarren zu können, der hat mit der Göttin der theoretischen Physik geschlafen. Die Mathematik versteht sich in ihrem höchsten Nutzen als eine Dienerin aller Disziplinen wie der Informatik, der Elektrotechnik, dem Maschinenbau usw. Theoretische Physiker sind manchmal ziemlich eigenartige Menschen.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
