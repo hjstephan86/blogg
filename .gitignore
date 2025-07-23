@@ -1,6 +1,5 @@
 .vscode/
 *.aux
 *.log
-*.gz
 *.toc
 *.out
