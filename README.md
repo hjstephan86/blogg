@@ -24,6 +24,12 @@ Wer die Fourier Transformation anschaut und meint, sie in voller Entfaltung symp
 
 Zu welcher Zeit während eines Signals über Zeit benötige ich eine bildhafte Darstellung bzw. Vorstellung eines Ausschnitts von dem Signal? Vielleicht um sehen zu können, jetzt ist es ein hoher Ton und jetzt ist es ein sehr hoher Ton? Für wen? Die automatisierte Analyse und Auswertung muss mit allen Datenpunkten eines Signals arbeiten, vom Anfang bis zum Ende. Mir scheint die Fourier oder Laplace Transformation heute überholt zu sein. Wieso Transformation? Transformation hört sich an wie eine Neugeburt, die der Menschheit notwendigerweise gegeben werden musste. Jetzt kommt etwas sehr Wichtiges, so wichtig, dass auch eigentlich immer beide genannt werden müssen: Fourier und Laplace. Wer sind diese Franzosen?
 
+Die Attraktion eines Musters, eines Signals oder einer Nachricht besteht in der Anzahl der Unterschiede. Erst die Unterschiede ermöglichen Deutung und Interpretation: 0 und 1. Die Glocken läuten, der Vogel zwitschert, nicht unaufhörlich, mal gong, mal kein gong, mal zwietsch, mal kein zwietsch. 
+
+Ein Signal über Zeit ist in seinen Unterschieden attraktiver als ein Signal, welches französisch transformiert wurde, denn je größer die Attraktion, desto besser die Deutung.
+
+Ich gebe der Welt violettes Internet durch OLE.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
