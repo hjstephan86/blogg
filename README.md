@@ -32,6 +32,10 @@ Ich gebe der Welt violettes Internet durch OLE.
 
 Bei Microsoft in C ist der Befehl `pid = fork();` eigenartig und ungewöhnlich. Erst links vom = wird der neue Thread ausgeführt. Rechts vom = wird dem System gesagt, gib mir einen neuen Thread. Beides in einer Zeile, Bill?
 
+Biete ein öffentliches standardisiertes Repository für Python Strukturen und Algorithmen an. Typische Strukturen sind z.B. Vektoren, Matrizen und Graphen. Wissenschaftler bestätigen Strukturen und Algorithmen und nutzen diese für ein einheitliches Verständnis in der wissenschaftlichen Welt und für die Wiederverwendung. Das einheitliche Verständnis ist in der Wissenschaft wichtig, da unterschiedliche Universitäten ähnliche Strukturen verwenden aber sie anders nennen. Die Wahrheit jeder wissenschaftlichen Erkenntnis muss auch mit Experimenten bestätigt werden.
+
+Bilde R in Python ab.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
