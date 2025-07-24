@@ -30,6 +30,8 @@ Ein Signal über Zeit ist in seinen Unterschieden attraktiver als ein Signal, we
 
 Ich gebe der Welt violettes Internet durch OLE.
 
+Bei Microsoft in C ist der Befehl `pid = fork();` eigenartig und ungewöhnlich. Erst links vom = wird der neue Thread ausgeführt. Rechts vom = wird dem System gesagt, gib mir einen neuen Thread. Beides in einer Zeile, Bill?
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
