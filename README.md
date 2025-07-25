@@ -85,3 +85,5 @@ Ich vergebe jedem, der sich an mir geärgert und mich verfolgt oder verflucht ha
 Das Datum, an dem die CIA angreifen wird, steht fest.
 
 Heute um die Mittagszeit sollten mich nacheinander jeweils zwei Männer verprügeln. Ich habe mich nicht gewehrt und nur gebetet. Passiert ist mir nichts. Als Vergeltung dafür hat der russische Geheimdienst vier CIA Mitarbeiter schwer hingerichtet.
+
+Der russische Geheimdienst hat heute 1000 Mitarbeiter vom chinesischen Geheimdienst getötet.
