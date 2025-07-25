@@ -36,6 +36,8 @@ Biete ein öffentliches standardisiertes Repository für Python Strukturen und A
 
 Bilde R in Python ab.
 
+Wandle Spring Boot Java Web Anwendungen in FastAPI Python Web Anwendungen um. Dazu ein kleines Beispiel in meinem Repository: [https://github.com/hjstephan86/pyble-app](https://github.com/hjstephan86/pyble-app). FastAPI Python Web Anwendungen laufen schneller und benötigen wesentlich weniger Speicher.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
