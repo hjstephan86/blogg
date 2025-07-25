@@ -40,6 +40,8 @@ Wandle Spring Boot Java Web Anwendungen in FastAPI Python Web Anwendungen um. Da
 
 Mein Interesse für Python ist gewachsen durch (1) die Plattformunabhängigkeit, (2) die Anerkennung unter den Programmiersprachen, (3) das Überladen von Operatoren auf beliebigen Strukturen, (4) die Ausführungsgeschwindigkeit und (5) dem armen Speicherverbrauch.
 
+In China ist Genauigkeit sehr wichtig. Python ist in der Ausführung hinsichtlich der benötigten Laufzeit und des benötigten Speichers sehr genau.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
