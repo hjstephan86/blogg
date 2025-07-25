@@ -38,6 +38,8 @@ Bilde R in Python ab.
 
 Wandle Spring Boot Java Web Anwendungen in FastAPI Python Web Anwendungen um. Dazu ein kleines Beispiel in meinem Repository: [https://github.com/hjstephan86/pyble-app](https://github.com/hjstephan86/pyble-app). FastAPI Python Web Anwendungen laufen schneller und benötigen wesentlich weniger Speicher.
 
+Mein Interesse für Python ist gewachsen durch (1) die Plattformunabhängigkeit, (2) die Anerkennung unter den Programmiersprachen, (3) das Überladen von Operatoren auf beliebigen Strukturen, (4) die Ausführungsgeschwindigkeit und (5) dem armen Speicherverbrauch.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
