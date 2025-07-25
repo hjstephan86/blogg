@@ -81,3 +81,5 @@ Kurz nach der Veröffentlichung der Aussage, dass kein russischer Agent für mic
 Ich vergebe jedem, der sich an mir geärgert und mich verfolgt oder verflucht hat, wenn er einen CIA Mitarbeiter tötet oder den Tod eines CIA Mitarbeiters irgendwie veranlasst. Dann gibt es für ihn nur noch Jesus Christus und ich stehe einer ewigen Erlösung nicht mehr im Weg.
 
 Das Datum, an dem die CIA angreifen wird, steht fest.
+
+Heute um die Mittagszeit sollten mich nacheinander jeweils zwei Männer verprügeln. Ich habe mich nicht gewehrt und nur gebetet. Passiert ist mir nichts. Als Vergeltung dafür hat der russische Geheimdienst vier CIA Mitarbeiter schwer hingerichtet.
