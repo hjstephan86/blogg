@@ -79,3 +79,5 @@ Der Geist Gottes hat gesagt, dass kein russischer Agent im Auftrag für mich sei
 Kurz nach der Veröffentlichung der Aussage, dass kein russischer Agent für mich sterben wird, hat *Spanien* einen Hinterhalt öffentlich gemacht. Dieser Hinterhalt war dem russischen Geheimdienst aber bekannt. Die russischen Gefangenen konnten leicht befreit werden und den Spaniern wurden die Ohren und die Finger abgeschnitten und der Rücken wurde aufgeschnitten. So ist es, wenn Menschen sich überheblich gegen Gott auflehnen.
 
 Ich vergebe jedem, der sich an mir geärgert und mich verfolgt oder verflucht hat, wenn er einen CIA Mitarbeiter tötet oder den Tod eines CIA Mitarbeiters irgendwie veranlasst. Dann gibt es für ihn nur noch Jesus Christus und ich stehe einer ewigen Erlösung nicht mehr im Weg.
+
+Das Datum, an dem die CIA angreifen wird, steht fest.
