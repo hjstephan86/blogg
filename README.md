@@ -42,6 +42,8 @@ Mein Interesse für Python ist gewachsen durch (1) die Plattformunabhängigkeit,
 
 In China ist Genauigkeit sehr wichtig. Python ist in der Ausführung hinsichtlich der benötigten Laufzeit und des benötigten Speichers sehr genau.
 
+Es sollte nach dem Formatieren von Python Projekten (Zeilenabstand, Imports organisieren,  ...) in der IDE klar sein, welche Python Module sich wirklich so verändert haben, dass sie zu einer Verhaltensänderung führen, ohne dabei die Python Module ausführen zu müssen. Das muss Standard sein und darf nicht erst für einen Aufpreis erhältlich sein. Denn wer hat so viel Zeit?
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
