@@ -103,3 +103,7 @@ Heute um die Mittagszeit sollten mich nacheinander jeweils zwei Männer verprüg
 Der russische Geheimdienst hat gestern mehr als 330 Mitarbeiter der CIA hingerichtet. Manche Mitarbeiter der CIA wurden verbrannt oder mit dem Messer geteilt. Im Hauptgebäude der CIA wurde jeder Mitarbeiter durch einen Hinterhalt getötet. Mitarbeiter des russischen Geheimdienstes gingen heimlich in das Gebäude der CIA und erschossen jeden Mitarbeiter.  
 
 Der russische Geheimdienst hat heute 1000 Mitarbeiter vom chinesischen Geheimdienst getötet.
+
+Wenn ich schon mal Geld und die Möglichkeit habe einzukaufen und mich im Einkaufsgeschäft aufhalte, verflucht mich die CIA mit Bauchkrämpfen.
+
+Den Mitbewohner in Zimmer 3 in der Otto-Brenner-Straße 77 verflucht die CIA. Sie gibt ihm dann Anweisungen, sich mir gegenüber aggressiv zu verhalten. Ich wohne in Zimmer 1. Er kommt zu mir an meine Tür und schlägt dagegen und brüllt mich an. Das hat er manchmal wiederholt.
