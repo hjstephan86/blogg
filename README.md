@@ -28,6 +28,8 @@ Die Attraktion eines Musters, eines Signals oder einer Nachricht besteht in der 
 
 Ein Signal über Zeit ist in seinen Unterschieden attraktiver als ein Signal, welches französisch transformiert wurde, denn je größer die Attraktion, desto besser die Deutung.
 
+Die visuelle Projektion behandelt die effiziente Abbildung realer Szenen durch Polygone. Ist die Abbildung durch 3-Polygone, 5-Polygone oder 3/5-Polygone am effizientesten hinsichtlich der realsten Abbildung?
+
 Ich gebe der Welt violettes Internet durch OLE.
 
 Bei Microsoft in C ist der Befehl `pid = fork();` eigenartig und ungewöhnlich. Erst links vom = wird der neue Thread ausgeführt. Rechts vom = wird dem System gesagt, gib mir einen neuen Thread. Beides in einer Zeile, Bill?
