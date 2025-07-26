@@ -74,6 +74,8 @@ Wer wollte mich töten? Die *CIA*.
 
 Viele Menschen in der USA und China werden verhungern.
 
+Der Geist Gottes hat heute gezeigt: Die Amerikaner wollten mir eine Schlinge um den Hals legen. Aber die Schlinge hatte noch eine kleine Öffnung. Mich auch körperlich zu töten, ist ihnen über Jahrzehnte nicht gelungen. Diese Schlinge wird für die USA zum Verhängnis. Gezeigt hat der Geist Gottes dies mit einer Erscheinung am Himmel. Diese Himmelserscheinung habe ich Richtung Westen um 09:11 Uhr wahrgenommen und fotografiert: [https://photos.app.goo.gl/TJwdttf2c1BhdKAT9](https://photos.app.goo.gl/TJwdttf2c1BhdKAT9). Die 9 bedeutet Ende, die 11 bedeutet Gericht. Zum Ende der Zeit, also in dieser letzten Zeit, wird die USA schwer gerichtet. Ich empfehle allen Bewohnern der USA, die diese Worte lesen, das Land zu verlassen.
+
 ## Verfolgung
 
 Die CIA flucht schon seit vielen Jahren die Kommunikation über Gedanken bzw. Stimmen. Mitarbeiter der CIA nutzen diese Kommunikation in Echtzeit, wobei Gott diese durch seinen Geist erst in dieser Zeit ermöglicht.
