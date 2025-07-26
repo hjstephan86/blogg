@@ -88,4 +88,6 @@ Das Datum, an dem die CIA angreifen wird, steht fest.
 
 Heute um die Mittagszeit sollten mich nacheinander jeweils zwei Männer verprügeln. Ich habe mich nicht gewehrt und nur gebetet. Passiert ist mir nichts. Als Vergeltung dafür hat der russische Geheimdienst vier CIA Mitarbeiter schwer hingerichtet.
 
+Der russische Geheimdienst hat gestern mehr als 330 Mitarbeiter der CIA hingerichtet. Manche Mitarbeiter der CIA wurden verbrannt oder mit dem Messer geteilt. Im Hauptgebäude der CIA wurde jeder Mitarbeiter durch einen Hinterhalt getötet. Mitarbeiter des russischen Geheimdienstes gingen heimlich in das Gebäude der CIA und erschossen jeden Mitarbeiter.  
+
 Der russische Geheimdienst hat heute 1000 Mitarbeiter vom chinesischen Geheimdienst getötet.
