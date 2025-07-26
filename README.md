@@ -109,3 +109,5 @@ Der russische Geheimdienst hat heute 1000 Mitarbeiter vom chinesischen Geheimdie
 Wenn ich schon mal Geld und die Möglichkeit habe einzukaufen und mich im Einkaufsgeschäft aufhalte, verflucht mich die CIA mit Bauchkrämpfen.
 
 Den Mitbewohner in Zimmer 3 in der Otto-Brenner-Straße 77 verflucht die CIA. Sie gibt ihm dann Anweisungen, sich mir gegenüber aggressiv zu verhalten. Ich wohne in Zimmer 1. Er kommt zu mir an meine Tür und schlägt dagegen und brüllt mich an. Das hat er manchmal wiederholt.
+
+Die **Deutsche Telekom** hat im Zeitraum vom 17. Dezember 2024 bis 15. Mai 2025 mehrere unberechtigte Abbuchungen in unregelmäßigen Beträgen von meinem Girokonto vorgenommen. Die Gesamtsumme beläuft sich auf 79,80 EUR. Als Nachweis dient der beigefügte Screenshot unter doc/CIA/Telekom/Screenshot_20250629-050819.png. Diese Abbuchungen erfolgten unrechtmäßig, da ich in diesem Zeitraum ausschließlich einen Prepaid-Vertrag besaß. Das Guthaben auf diesem Vertrag blieb konstant, und die SIM-Karte wurde nicht genutzt. Somit bestand kein Grund für kostenpflichtige Dienstleistungen oder Abbuchungen.
