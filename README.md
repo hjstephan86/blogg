@@ -72,6 +72,8 @@ Offb 20, 12 - 15 *Und ich sah die Toten, beide, groß und klein, stehen vor Gott
 
 Wer wollte mich töten? Die *CIA*.
 
+Viele Menschen in der USA und China werden verhungern.
+
 ## Verfolgung
 
 Die CIA flucht schon seit vielen Jahren die Kommunikation über Gedanken bzw. Stimmen. Mitarbeiter der CIA nutzen diese Kommunikation in Echtzeit, wobei Gott diese durch seinen Geist erst in dieser Zeit ermöglicht.
