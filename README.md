@@ -28,7 +28,9 @@ Die Attraktion eines Musters, eines Signals oder einer Nachricht besteht in der 
 
 Ein Signal über Zeit ist in seinen Unterschieden attraktiver als ein Signal, welches französisch transformiert wurde, denn je größer die Attraktion, desto besser die Deutung.
 
-Die visuelle Projektion behandelt die effiziente Abbildung realer Szenen durch Polygone. Ist die Abbildung durch 3-Polygone, 5-Polygone oder 3/5-Polygone am effizientesten hinsichtlich der realsten Abbildung?
+Die visuelle Projektion behandelt die effiziente Abbildung realer Szenen durch Polygone. Ist die Abbildung durch 3-Polygone, 5-Polygone oder 3/5-Polygone am effizientesten hinsichtlich der realsten Abbildung? 
+
+3-Polygone lassen sich im Detail feiner kombinieren und bilden damit die Realität besser ab. 3-Polygone lassen sich aber auch miteinander effizienter kombinieren, da es 3-Polygone sind und nicht 5-Polygone.
 
 Ich gebe der Welt violettes Internet durch OLE.
 
