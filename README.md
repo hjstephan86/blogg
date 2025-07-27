@@ -72,6 +72,8 @@ Nur mir ist Jhwh (F) fünfmal erschienen, einmal in Köln 2024, dreimal in Schlo
 
 Ich bin die grüne Wellenlänge mit mehr Energie als die gelbe Wellenlänge. Jesus ist die gelbe Wellenlänge. Ich bin die violette Wellenlänge, sie hat die meiste Energie.
 
+Mein Herz ist wie Wasser. Es findet immer seinen Weg.
+
 Vor Grundlegung der Welt wurde Jhwh geschaffen. Die Engel waren schon da. Im Ursprung der Welt, d.h., mit der Schöpfung, beginnt die Zeit. Am 6. Tag schuf Jhwh mit dem Geist Gottes den Menschen. Die Erde wird genau 6000 Jahre alt sein, wenn das 1000-jährige Reich vorbei ist.
 
 Alle Menschen stehen zu Beginn im Buch des Lebens. Viele Namen werden aus dem Buch des Lebens gelöscht.
