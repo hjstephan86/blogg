@@ -119,3 +119,5 @@ Für die täglichen Mahlzeiten suche ich regelmäßig die **Bahnhofsmission am H
 **China** bietet Claude als AI Chatbot an. Leider findet Claude nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497](https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497). Insgesamt konnte nach fünf Nachfragen keine gelungene HTML Seite generiert werden.
 
 **Google** bietet Gemini als AI Chatbot an. Leider findet Gemini nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://g.co/gemini/share/e7ab10b9e79b](https://g.co/gemini/share/e7ab10b9e79b). Insgesamt konnte nach drei Nachfragen keine gelungene HTML Seite generiert werden.
+
+Der russische Geheimdienst antwortet auf Folter mit Folter. Die CIA foltert mich durch Fluchen. Der russische Geheimdienst foltert CIA Mitarbeiter.
