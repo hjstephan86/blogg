@@ -148,4 +148,4 @@ Für die täglichen Mahlzeiten suche ich regelmäßig die **Bahnhofsmission am H
 
 Der russische Geheimdienst antwortet auf Folter mit Folter. Die CIA foltert mich durch Fluchen. Der russische Geheimdienst foltert CIA Mitarbeiter.
 
-Heute, am 28. Juli zu 11 Uhr, bin ich von der Behörde der Stadt Bielefeld zu einem Gespräch eingeladen worden, in dem ich Stellungnahme abgeben darf, ob eine Betreuung für mich in den Bereichen Wohnen und Gesundheit erforderlich ist. Warum ist die CIA so sehr daran interessiert, dass dieses Gespräch zur persönlichen Stellungnahme verhindert wird?
+Heute, am 28. Juli um 11 Uhr, bin ich von der Behörde der Stadt Bielefeld zu einem Gespräch eingeladen worden, in dem ich Stellungnahme abgeben darf, ob eine Betreuung für mich in den Bereichen Wohnen und Gesundheit erforderlich ist. Warum ist die CIA so sehr daran interessiert, dass dieses Gespräch zur persönlichen Stellungnahme verhindert wird? Die Einladung dazu und die Anregung von Tim Buschmann, Mitarbeiter vom Sozialpsychiatrischen Dienst, liegen als Nachweis unter doc/CIA/Bielefeld/Betreuung/.
