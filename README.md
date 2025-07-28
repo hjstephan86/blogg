@@ -44,7 +44,9 @@ Verwende drei Stellen zur eindeutigen Identifizierung im Namen einer E-Mail-Adre
 
 Videos im .mp4-Format werden vor dem Back-Up mit V9 kodiert und dann im .webm-Format hochgeladen.
 
-Nutze einen offenen PDF Standard als Open PDF Format mit der Dateiendung .opdf.
+Nutze einen offenen PDF Standard als Open PDF Format mit der Dateiendung .opdf, der das Bearbeiten von PDF Dokumenten ermöglicht.
+
+Biete eine Konvertierung von PDF nach OPDF an, bei der es nicht zum Informationsverlust kommt, da der Standard einen propritären Bereich definiert für speziellere, d.h., weniger allgemeine, PDF Eigenschaften.
 
 Bei Microsoft in C ist der Befehl `pid = fork();` eigenartig und ungewöhnlich. Erst links vom = wird der neue Thread ausgeführt. Rechts vom = wird dem System gesagt, gib mir einen neuen Thread. Beides in einer Zeile, Bill?
 
