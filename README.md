@@ -18,6 +18,8 @@ Was ist der Unterschied zwischen schwacher und starker Kernkraft? Kann bezogen a
 
 Was passiert, wenn ein Vulkan ausbricht? Ist dies noch durch eine glatte Lösung beschreibbar? Nein, denn Schockwellen oder Explosionen führen zu plötzlichen Sprüngen, z. B. in Druck oder Dichte. Turbulenz ist chaotisch und nicht glatt. Singularitäten (z. B. überaus starker Druck an einem Punkt) treten auf. Gase, Flüssigkeiten, Temperatur einerseits und sehr feste Festkörper andererseits – alles auf einmal. Gase, Flüssigkeiten und die Temperatur wirken zusammen auf der einen Seite und der feste Festkörper erst auf der anderen Seite erlaubt dem Gas-Flüssigkeitsgemisch bei extremer Temperatur so explosiv unter Druck auf diese Art zu reagieren. Ohne Temperatur wäre das nicht möglich.
 
+Ohne Temperatur gibt es kein Leben. Wer hat beim Urknall die Temperatur gegeben? Wo kommt die Temperatur ursprünglich her? Es kann keinen Urknall ohne Temperatur gegeben haben. Sie war da, messbar in Celsius oder Fahrenheit.
+
 Ich hasse Klimmzüge und Sit-Ups. Bei Klimmzügen geht es hoch und runter und dann wieder hoch, obwohl man schon oben war. Warum? Warum wird der Erdanziehungskraft bei Klimmzügen direkt entgegen gewirkt? Viele Menschen zerreißen sich beim Sport und leiden Qualen für einen trainierten Körper. Ich liebe Fahrrad fahren, rudern, schwimmen, Fußball spielen und kurze Sprints. Sport tut Deutschland gut.
 
 Minimiere die Anzahl von Client Requests über REST API Schnittstellen durch definierte Protokolle, die serverseitig ausgeführt werden. Aufgrund des Client Requests muss klar sein, welches Protokoll der Server bis zum Response ausführt.
