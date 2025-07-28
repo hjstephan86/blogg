@@ -135,3 +135,5 @@ Für die täglichen Mahlzeiten suche ich regelmäßig die **Bahnhofsmission am H
 **Google** bietet Gemini als AI Chatbot an. Leider findet Gemini nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://g.co/gemini/share/e7ab10b9e79b](https://g.co/gemini/share/e7ab10b9e79b). Insgesamt konnte nach drei Nachfragen keine gelungene HTML Seite generiert werden.
 
 Der russische Geheimdienst antwortet auf Folter mit Folter. Die CIA foltert mich durch Fluchen. Der russische Geheimdienst foltert CIA Mitarbeiter.
+
+Heute, am 28. Juli zu 11 Uhr, bin ich von der Behörde der Stadt Bielefeld zu einem Gespräch eingeladen worden, in dem ich Stellungnahme abgeben darf, ob eine Betreuung für mich in den Bereichen Wohnen und Gesundheit erforderlich ist. Warum ist die CIA so sehr daran interessiert, dass dieses Gespräch zur persönlichen Stellungnahme verhindert wird?
