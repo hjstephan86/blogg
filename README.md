@@ -32,6 +32,10 @@ Die Suchmaschine über den Suchmaschinen heißt `goody.com`.
 
 **Engineering by purpose**, not only user centered, not only solution centered. Maybe there is an efficient solution which drives the engineering process up to the *UI layer*. Maybe there is a special user need which drives the engineering process from UI layer to the *algorithms & structures* layer or even down to the *data layer*.
 
+Es braucht einen Standard zum Beschreiben von Testfällen, unabhängig von einer konkreten Programmiersprache. Eine Testbeschreibungsdatei mit Endung .tdf enthält die Testfälle für ein zu testendes Objekt.
+
+Biete Transformationen von .java oder .c nach .tdf und eine Transformation von .tdf nach.py an.
+
 Wer die Fourier Transformation anschaut und meint, sie in voller Entfaltung sympatisch belächeln und ergriffen von ihr sie anstarren zu können, der hat mit der Göttin der theoretischen Physik geschlafen. Die Mathematik versteht sich in ihrem höchsten Nutzen als eine Dienerin aller Disziplinen wie der Informatik, der Elektrotechnik, dem Maschinenbau usw. Theoretische Physiker sind manchmal ziemlich eigenartige Menschen.
 
 Zu welcher Zeit während eines Signals über Zeit benötige ich eine bildhafte Darstellung bzw. Vorstellung eines Ausschnitts von dem Signal? Vielleicht um sehen zu können, jetzt ist es ein hoher Ton und jetzt ist es ein sehr hoher Ton? Für wen? Die automatisierte Analyse und Auswertung muss mit allen Datenpunkten eines Signals arbeiten, vom Anfang bis zum Ende. Mir scheint die Fourier oder Laplace Transformation heute überholt zu sein. Wieso Transformation? Transformation hört sich an wie eine Neugeburt, die der Menschheit notwendigerweise gegeben werden musste. Jetzt kommt etwas sehr Wichtiges, so wichtig, dass auch eigentlich immer beide genannt werden müssen: Fourier und Laplace. Wer sind diese Franzosen?
