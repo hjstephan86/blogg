@@ -34,6 +34,8 @@ Die Suchmaschine über den Suchmaschinen heißt `goody.com`.
 
 Es braucht einen Standard zum Beschreiben von Testfällen, unabhängig von einer konkreten Programmiersprache. Eine Testbeschreibungsdatei mit Endung .tdf enthält die Testfälle für ein zu testendes Objekt.
 
+Beschreibe die Testfälle durch Spracheingabe in eine TDF KI. Die TDF KI formatiert die Testfälle nach dem TDF Standard in Textform.
+
 Biete Transformationen von .java oder .c nach .tdf und eine Transformation von .tdf nach.py an.
 
 Wer die Fourier Transformation anschaut und meint, sie in voller Entfaltung sympatisch belächeln und ergriffen von ihr sie anstarren zu können, der hat mit der Göttin der theoretischen Physik geschlafen. Die Mathematik versteht sich in ihrem höchsten Nutzen als eine Dienerin aller Disziplinen wie der Informatik, der Elektrotechnik, dem Maschinenbau usw. Theoretische Physiker sind manchmal ziemlich eigenartige Menschen.
