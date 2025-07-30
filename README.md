@@ -76,6 +76,8 @@ In China ist Genauigkeit sehr wichtig. Python ist in der Ausführung hinsichtlic
 
 Es sollte nach dem Formatieren von Python Projekten (Zeilenabstand, Imports organisieren,  ...) in der IDE klar sein, welche Python Module sich wirklich so verändert haben, dass sie zu einer Verhaltensänderung führen, ohne dabei die Python Module ausführen zu müssen. Das muss Standard sein und darf nicht erst für einen Aufpreis erhältlich sein. Denn wer hat so viel Zeit?
 
+Digitalisiere Bargeld mit Hilfe einer App. Die 50 EUR Scheine werden mit der App entwertet und dem elektronischen Geldkonto gutgeschrieben. Wird der entwertete Euroschein verloren, entsteht eine Gebühr von 1%. Der entwertete Euroschein muss wieder zur Aufwertung an lokal verfügbaren Terminals abgegeben werden.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
