@@ -78,6 +78,8 @@ Es sollte nach dem Formatieren von Python Projekten (Zeilenabstand, Imports orga
 
 Digitalisiere Bargeld mit Hilfe einer App. Die 50 EUR Scheine werden mit der App entwertet und dem elektronischen Geldkonto gutgeschrieben. Wird der entwertete Euroschein verloren, entsteht eine Gebühr von 1%. Der entwertete Euroschein muss wieder zur Aufwertung an lokal verfügbaren Terminals abgegeben werden.
 
+Bei der Digitalisierung eines Euroscheins wird eine Gebühr von 1% erhoben. Diese Gebühr wird dem Benutzer in Wochen-Zyklen wieder gutgeschrieben, wenn der Euroschein zur erneuten Aufwertung abgegeben wurde.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
