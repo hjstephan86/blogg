@@ -80,6 +80,8 @@ Digitalisiere Bargeld mit Hilfe einer App. Die 50 EUR Scheine werden mit der App
 
 Bei der Digitalisierung eines Euroscheins wird eine Gebühr von 1% erhoben. Diese Gebühr wird dem Benutzer in Wochen-Zyklen wieder gutgeschrieben, wenn der Euroschein zur erneuten Aufwertung abgegeben wurde.
 
+Es dürfen kleine Stores nicht mehr dazu gezwungen werden, erst ab 10,00 EUR elektronische Überweisungen in Empfang zu nehmen, da es sich für sie sonst nicht rechnet. Dafür ist eine App nötig, die das Gutschreiben in Echtzeit auch von kleinen Beträgen ermöglicht - nur von Käufer zu Verkäufer.
+
 ## Wahrheit
 
 Die **acht Ebenen der Geister des Lebens**:\
