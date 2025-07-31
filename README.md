@@ -6,11 +6,11 @@ Gift: Wörter der Bibel zählen auf [https://www.123-bibel.de](https://www.123-b
 
 ## Inhaltsverzeichnis
 
-* [Naturwissenschaft](#Naturwissenschaft)
-* [Wahrheit](#Wahrheit)
-* [Verfolgung](#Verfolgung)
-    * [AI Chatbots](#AI-Chatbots)
-    * [Betreuung](#Betreuung)
+* [Naturwissenschaft](#naturwissenschaft)
+* [Wahrheit](#wahrheit)
+* [Verfolgung](#verfolgung)
+    * [AI Chatbots](#ai-chatbots)
+    * [Betreuung](#betreuung)
 
 ## Naturwissenschaft
 
@@ -52,7 +52,7 @@ Die visuelle Projektion behandelt die effiziente Abbildung realer Szenen durch P
 
 Ich gebe der Welt violettes Internet durch OLE.
 
-Nutze einen allgemeinen Platzhalter <shared src="..."></shared>, der bei der Verarbeitung für die Entwicklung, den Build oder das Deployment durch gemeinsam genutzten Quellcode ersetzt wird – egal ob HTML, CSS oder JS und egal an welcher Stelle im Code. Das Ziel ist die einfache und direkte Wartbarkeit und Wiederverwendbarkeit.
+Nutze einen allgemeinen Platzhalter `<shared src="..."></shared>`, der bei der Verarbeitung für die Entwicklung, den Build oder das Deployment durch gemeinsam genutzten Quellcode ersetzt wird – egal ob HTML, CSS oder JS und egal an welcher Stelle im Code. Das Ziel ist die einfache und direkte Wartbarkeit und Wiederverwendbarkeit.
 
 Generiere global eindeutige Hyperlinks durch 15 Stellen, wobei eine Stelle aus Zahlen von 0 bis 9 und kleinen Buchstaben von a bis z besteht. Falls ein globaler Hyperlink für 100 Jahre nicht verwendet wird, verwende ihn wieder.
 
@@ -158,6 +158,8 @@ Bei der telefonischen Kündigung des Prepaid-Vertrages am 26. Juli 2025 hat der 
 
 Für die täglichen Mahlzeiten suche ich regelmäßig die **Bahnhofsmission am Hauptbahnhof in Bielefeld** auf. In letzter Zeit kommt es bei der Essensausgabe zu längeren Wartezeiten und auffällig langen Gesprächen mit Menschen, die die Bahnhofsmission für organisatorische Fragen aufsuchen müssen. Nach Aussage von Herrn Martin Zawieracz kann die Situation aktuell nicht anders gelöst werden, als dass hungernde Menschen vor dem Eingang der Bahnhofsmission benachteiligt werden gegenüber denen, die satt sind und nur ein organisatorisches Anliegen klären müssen.
 
+Die Bahnhofsmission teilt in den letzten Tagen 6 Tage abgelaufenen Bautzner Senf, 7 Tage abgelaufenen Philadelphia Frischkäse und 10 Tage abgelaufene Steinofen-Sticks aus. Dazu habe ich Fotos gemacht und als Nachweis unter doc/CIA/Bielefeld/Bahnhofsmission/ abgelegt. Wer hat diese abgelaufenen Lebensmittel der Bahnhofsmission gespendet?
+
 Der russische Geheimdienst antwortet auf Folter mit Folter. Die CIA foltert mich durch Fluchen. Der russische Geheimdienst foltert CIA Mitarbeiter.
 
 Der russische Geheimdienst schneidet CIA Mitarbeitern den Bauch auf und legt ihren Magen frei. Denn die CIA verflucht mich mit Bauchkrämpfen. Zeitgleich will die CIA sich rächen, der russische Geheimdienst aber unterbindet diese Rache und tötet alle, die Rache üben wollten.
@@ -167,6 +169,22 @@ Der russische Geheimdienst spaltet CIA Mitarbeitern mit Äxten und Spitzhacken d
 Die CIA verflucht meine Fußsohlen mit Hitze beim Gehen. Der russische Geheimdienst bügelt die Fußsohlen der CIA Mitarbeiter mit Bügeleisen.
 
 Die CIA kündigte eine Vergeltung durch Folter mit Bügeleisen im mit Menschen besetzten Flugzeug an. Ich betete und die CIA Mitarbeiter wurden blind und konnten ausgeschaltet werden.
+
+Der russische Geheimdienst hat am 27. August 2025 drei Lkw-Ladungen US-Gold aus einem amerikanischen Golddepot entwendet.
+
+Am 28. August 2025 hat der russische Geheimdienst zwei weitere Lkw-Ladungen US-Gold aus einem amerikanischen Golddepot entwendet.
+
+Die Juden haben mich mit ehebrecherischen und pornografischen Gedanken verflucht. Der Geist Gottes hat Benjamin Netanjahu ins Hurenhaus getrieben.
+
+Elon Musk hat seit drei Tagen massive Schlafstörungen und seit drei Tagen keinen Stuhlgang mehr.
+
+Annika, eine junge Frau aus Russland, hat mich gefragt, ob ich sie heiraten will. Das habe ich abgelehnt. Annika hat Wladimir Wladimirowitsch Putin sexuell befriedigt, dass er zum Orgasmus gekommen ist.
+
+Wladimir Wladimirowitsch Putin hat viel Geld von China erhalten und damit meinen Tod in Auftrag gegeben. Der russische Geheimdienst wollte mich töten und will dies auch in Zukunft tun.
+
+Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
+
+Der Geist Gottes hat Xi Jinping und Peng Liyuan zum sexuellen Verkehr getrieben mit Donald Trump und Melania Trump.
 
 ### AI Chatbots
 
