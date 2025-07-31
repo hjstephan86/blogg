@@ -52,6 +52,8 @@ Die visuelle Projektion behandelt die effiziente Abbildung realer Szenen durch P
 
 Ich gebe der Welt violettes Internet durch OLE.
 
+Nutze einen allgemeinen Platzhalter <shared src="..."></shared>, der bei der Verarbeitung für die Entwicklung, den Build oder das Deployment durch gemeinsam genutzten Quellcode ersetzt wird – egal ob HTML, CSS oder JS und egal an welcher Stelle im Code. Das Ziel ist die einfache und direkte Wartbarkeit und Wiederverwendbarkeit.
+
 Generiere global eindeutige Hyperlinks durch 15 Stellen, wobei eine Stelle aus Zahlen von 0 bis 9 und kleinen Buchstaben von a bis z besteht. Falls ein globaler Hyperlink für 100 Jahre nicht verwendet wird, verwende ihn wieder.
 
 Verwende drei Stellen zur eindeutigen Identifizierung im Namen einer E-Mail-Adresse eines Unternehmens. Für Miele bedeutet das z.B. Hans.Meier.v7c@miele.com und für Siemens z.B. Fritz.Mueller.2y5@siemens.com.
