@@ -186,6 +186,8 @@ Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
 
 Der Geist Gottes hat Xi Jinping und Peng Liyuan zum sexuellen Verkehr getrieben mit Donald Trump und Melania Trump.
 
+John Ratcliffe, Direktor der CIA, konsumiert Videos mit pornografischem Inhalt.
+
 ### AI Chatbots
 
 China bietet Claude als AI Chatbot an. Leider findet Claude nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497](https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497). Insgesamt konnte nach fünf Nachfragen keine gelungene HTML Seite generiert werden.
