@@ -178,15 +178,11 @@ Die Juden haben mich mit ehebrecherischen und pornografischen Gedanken verflucht
 
 Elon Musk hat seit drei Tagen massive Schlafstörungen und seit drei Tagen keinen Stuhlgang mehr.
 
-Annika, eine junge Frau aus Russland, hat mich gefragt, ob ich sie heiraten will. Das habe ich abgelehnt. Annika hat Wladimir Wladimirowitsch Putin sexuell befriedigt, dass er zum Orgasmus gekommen ist.
-
-Wladimir Wladimirowitsch Putin hat viel Geld von China erhalten und damit meinen Tod in Auftrag gegeben. Der russische Geheimdienst wollte mich töten und will dies auch in Zukunft tun.
-
-Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
-
-Der Geist Gottes hat Xi Jinping und Peng Liyuan zum sexuellen Verkehr getrieben mit Donald Trump und Melania Trump.
-
 John Ratcliffe, Direktor der CIA, konsumiert Videos mit pornografischem Inhalt.
+
+Ulrich „Uli“ Hoeneß, Ehrenpräsident des FC Bayern München e.V., hat seine Ehefrau, Susanne Hoeneß, geschlagen.
+
+Christoph Freund, Sportdirektor des FC Bayern München e.V., konsumiert Videos mit pornografischem Inhalt.
 
 ### AI Chatbots
 
