@@ -184,6 +184,14 @@ Ulrich „Uli“ Hoeneß, Ehrenpräsident des FC Bayern München e.V., hat seine
 
 Christoph Freund, Sportdirektor des FC Bayern München e.V., konsumiert Videos mit pornografischem Inhalt.
 
+Elon Musk ist verliebt in Peng Liyuan, die Ehefrau von Xi Jinping, und hatte mit ihr Geschlechtsverkehr.
+
+Wladimir Wladimirowitsch Putin hat die Ehe gebrochen und von China viel Geld erhalten und damit meinen Tod beauftragt.
+
+Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
+
+Präsident Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, hat 15 mal die Ehe gebrochen.
+
 ### AI Chatbots
 
 China bietet Claude als AI Chatbot an. Leider findet Claude nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497](https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497). Insgesamt konnte nach fünf Nachfragen keine gelungene HTML Seite generiert werden.
