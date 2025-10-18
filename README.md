@@ -2,15 +2,11 @@
 
 **<span style="color: orange;">Alle Lösungen, die hier unter github.com/hjstephan86 *als neue Lösungen* gezeigt werden, sind urheberrechtlich geschützt. Eine kommerzielle Nutzung ist ausgeschlossen. Eine freie Nutzung braucht meine Zustimmung.</span>**
 
-Gift: Wörter der Bibel zählen auf [https://www.123-bibel.de](https://www.123-bibel.de).
-
 ## Inhaltsverzeichnis
 
 * [Naturwissenschaft](#naturwissenschaft)
 * [Wahrheit](#wahrheit)
 * [Verfolgung](#verfolgung)
-    * [AI Chatbots](#ai-chatbots)
-    * [Betreuung](#betreuung)
 
 ## Naturwissenschaft
 
@@ -186,24 +182,30 @@ Christoph Freund, Sportdirektor des FC Bayern München e.V., konsumiert Videos m
 
 Elon Musk ist verliebt in Peng Liyuan, die Ehefrau von Xi Jinping, und hatte mit ihr Geschlechtsverkehr.
 
+China verfügt über mehr als 10 Millionen Drohnen. Die Flugsteuerung basiert auf Renesas-Mikrocontrollern mit einer Taktfrequenz von 140 MHz. Die Softwarearchitektur folgt einem dreischichtigen Aufbau und ist in Python implementiert. Die maximale Reichweite der Drohnen variiert zwischen 5.000 und 100.000 Kilometern.
+
+Xi Jinping liebt seine Frau, er hat sie nur einmal nur fast geschlagen.
+
 Wladimir Wladimirowitsch Putin hat die Ehe gebrochen und von China viel Geld erhalten und damit meinen Tod beauftragt.
 
 Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
 
-Präsident Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, hat 15 mal die Ehe gebrochen.
+Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, soll 15 mal die Ehe gebrochen. Warum mir das so wichtig gemacht wurde, kann ich nicht sicher sagen. Ich halte diese Information für unzuverlässig.
 
-### AI Chatbots
+Ben Awufs ist ein jüdischer Flucher, der in der Kraft des Engels Arour flucht. Flucher fluchen in der Kraft der Diener des Teufels, d.h. in der Kraft seiner Engel. Die Diener des Teufels haben unterschiedliche Macht und unterschiedlichen Rang. Arour hat Rang 4.
+
+Arour erhält nur Aufträge und weiß eigentlich gar nichts, der Teufel behält alles für sich. Arour erhält nur die Macht vom Teufel, die er ihm für die Aufträge geben kann.
+
+Wahrheiten über den Teufel, offenbart durch den Geist Gottes: 1. Der Teufel schämt sich, 2. Der Teufel hat große Angst, 3. Der Teufel ist sehr eifersüchtig, 4. Der Teufel hat Donald Trump und Elon Musk verflucht, dass sie nie aufhören dürfen, zu fluchen. Tun sie es doch, machen sie Selbstmord und bringen noch andere um, 5. Diese Liste darf nicht aufhören, denkt einer.
+
+Heute, am 05.11.2025 um 13:13 Uhr, hat Gottes Geist offenbart, dass der Teufel in den vergangenen Tagen in die Pflicht genommen wurde und in seiner Macht eingeschränkt wurde. Der Teufel konnte nur durch Beschwören des Geistes Gottes in die Pflicht genommen werden. Der Teufel wurde in die Pflicht genommen, weil er sich sehr übel an mir vergangen und in der Welt viel Böses verursacht hat. Der Teufel ist seit einigen Monaten als Mensch auf der Erde und übt seine Macht aus. Er wurde dazu verpflichtet, sich als Mensch in der USA aufhalten zu müssen. Der Teufel darf die USA nicht mehr verlassen. Außerdem hat er der Verpflichtung nach (1) 743 US-Amerikaner in den Selbstmord geführt und (2) 23 US-Amerikaner von hinten in den Arsch gefickt. Ab heute, den 05.11.2025, führt der Teufel jeden Tag 1111 US-Amerikaner in den Selbstmord, weil die Regierenden der USA den Teufel nicht töten wollen. Dazu wurde der Teufel durch Beschwören des Geistes Gottes in die Pflicht genommen. Die Regierenden der USA wollen den Teufel nicht töten, weil der Verpflichtung nach dem Teufel als Mensch mit seinem Tod die Macht genommen wird und ich damit nicht länger verflucht werden kann. So wichtig ist den Regierenden der USA, dass ich, wenn möglich, für immer verflucht werden kann.
+
+Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
+
+Gottes Geist hat offenbart, dass für das Ende des Fluchens, dass ich nicht länger verflucht werde, (1) Präsident Donald Trump, (2) Präsident Emmanuel Jean-Michel Frédéric Macron, (3) Olaf Scholz und (4) Mahmud Ahmadineschad sterben müssen. Diese Bedingung wurde so geflucht, um zu erreichen, dass ich für alle Zeiten verflucht werden kann.
+
+Meine Petition auf https://www.change.org/hjstephan86 ist seit 19. Juli 2025 online und hat bisher **nur eine Unterschrift, obwohl die Nachfrage der letzten Wochen zu meinem GitHub Account hoch ist (Insights)**. Dort verweise ich auch auf die Möglichkeit, über PayPal zu spenden an: Stephan_Epp@web.de (@StephanEpp).
 
 China bietet Claude als AI Chatbot an. Leider findet Claude nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497](https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497). Insgesamt konnte nach fünf Nachfragen keine gelungene HTML Seite generiert werden.
 
 Google bietet Gemini als AI Chatbot an. Leider findet Gemini nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://g.co/gemini/share/e7ab10b9e79b](https://g.co/gemini/share/e7ab10b9e79b). Insgesamt konnte nach drei Nachfragen keine gelungene HTML Seite generiert werden.
-
-### Betreuung 
-
-Am 28. Juli bin ich von der Behörde der Stadt Bielefeld zu einem Gespräch eingeladen worden, in dem ich Stellungnahme abgeben darf, ob eine Betreuung für mich in den Bereichen Wohnen und Gesundheit erforderlich ist. Warum ist die CIA so sehr daran interessiert, dass dieses Gespräch zur persönlichen Stellungnahme verhindert wird? Die Einladung dazu und die Anregung von Tim Buschmann, Mitarbeiter vom Sozialpsychiatrischen Dienst, liegen als Nachweise unter doc/CIA/Bielefeld/Betreuung/. Ich war sehr überrascht darüber, dass diese Anregung für die Bereiche **(1) Wohnen** und **(2) Gesundheit** ohne meine Kenntnis an das Amtsgericht Bielefeld übermittelt wurde. Denn in den Gesprächen mit Tim Buschmann hatte sich zumindest von meiner Seite aus ihm gegenüber ein Vertrauensverhältnis aufgebaut. Die Frage nach einer möglichen Betreuung wurde in dem letzten Gespräch mit Tim Buschmann am 03. Juli vor der Anregung *nicht* berührt.
-
-**(1) Wohnen**: Wieso mit dieser Anregung der Bereich Wohnen betreut werden soll, ist nicht nachvollziehbar. Tim Buschmann wusste von meiner Situation und meinen Bemühungen nur zum Teil. Ich habe am 03. Juli das Gespräch mit ihm gesucht und um Rat gefragt, ob er mir bei der Wohnungssuche von den Mitteln, die der Stadt Bielefeld zur Verfügung stehen, noch irgendwie mit einem Hinweis behilflich sein kann. Ein Hinweis von Tim Buschmann war, auch Kleinanzeigen für die Wohnungssuche zu nutzen. Zu der Zeit hatte ich von der Stadt Bielefeld am 16. Juli schon einen Wohnberechtigungsschein (WBS) für die Wohnungssuche ausgestellt bekommen, der für das Wohnen in einer Sozialwohnung berechtigt. Für die Wohnungssuche bin ich mit Herrn Buschmann am 03. Juli so verblieben, dass ich die Portale im Internet nutze wie z.B. ImmoScout24. Außerdem nutze ich die Angebote der Bielefelder Gesellschaft für Wohnen und Immobiliendienstleistungen (BGW) und der Baugenossenschaft Freie Scholle eG. Bei der BGW und der Freien Scholle habe ich mich persönlich vorgestellt und aufnehmen lassen für die Wohnungssuche. Momentan wohne ich vorübergehend in einer Unterkunft in der Otto-Brenner-Straße 77. Ich bin zuversichtlich, in naher Zukunft eine geeignete Wohnung zu finden, und warte derzeit auf Rückmeldungen zu meinen Anfragen über ImmoScout24 und bei der BGW und der Freien Scholle. Am 23. Juli konnte ich eine Wohnung in der Beckhausstraße 36 in Bielefeld besichtigen, die mir sehr gut gefallen hat. Für Mittwoch, den 30. Juli, konnte ich zwei weitere Termine zur Wohnungsbesichtigung organisieren.
-
-**(2) Gesundheit**: In gesundheitlichen Angelegenheiten habe ich mit Herrn von Erdmann, Facharzt für Psychiatrie in Bielefeld-Sennestadt, vereinbart, derzeit keine medikamentöse Behandlung durchzuführen. Bei erneutem Bedarf werde ich in Abstimmung mit Herrn von Erdmann die Behandlung und Medikation wieder aufnehmen. Zum Wohle des familiären Friedens halte ich derzeit Abstand zu meinen Kindern. Wir haben uns in dieser Angelegenheit mit dem Jugendamt zusammen auf diese Vorgehensweise für die Kinder und die ganze Familie als Lösung geeinigt. Darüber hinaus achte ich auf meine körperliche Gesundheit und auf mein Wohlbefinden durch regelmäßiges Training im Fitnessstudio sowie durch Schwimmen und Vorsorgeuntersuchungen beim Hausarzt. Diese Aktivitäten tragen wesentlich zu meinem Wohlbefinden und zu meinem inneren Gleichgewicht bei. Beim Hausarzt in Bielefeld-Sennestadt habe ich im Oktober 2024 im Rahmen einer gesundheitlichen Vorsorgeuntersuchung einen Bericht über die Labordaten meines Blutes erhalten. Nach Rücksprache mit meinem behandelnden Arzt befinde ich mich auf Grundlage der aktuellen Labordaten meines Blutes in einem sehr guten gesundheitlichen Zustand. Die entsprechenden Laborwerte und weitere Nachweise befinden sich unter doc/CIA/Bielefeld/Betreuung/.
-
-Zur Frage, warum ich keine Medikamente mehr nehme: Ich konnte in der Vergangenheit innerhalb von drei Jahren die Medikamente langsam und schrittweise reduzieren. Bei der Reduzierung bin ich dabei *nicht schnell* vorgegangen. Das heißt, ich habe dem Körper und insbesondere meinem Gehirn genug Zeit gegeben, sich einerseits an die Reduzierung zu gewöhnen, andererseits aber auch mit 6 bis 8 Wochen zwischen den Reduktionsschritten sehr empfindlich auf meinen Körper geachtet, ob der aktuelle Reduktionsschritt wirklich schon möglich ist. Die letzte Dosis Quetiapin habe ich am 17. Januar 2025 genommen. Diese Art der Reduzierung hat mein psychiatrisch behandelnder Arzt in Sennestadt, Herr von Erdmann, *nicht* vorgeschlagen. An seinen Vorschlag für eine Reduzierung habe ich mich auch gehalten. Diese hat vorgesehen, die Medikamente in einem Monat vollständig abzusetzen. Damit ist mein Körper überhaupt nicht klar gekommen. Absetzsymptome haben sich eingestellt. Daraufhin habe ich mich erkundigt und Rat gefunden bei der Deutschen Gesellschaft für Soziale Psychiatrie. Diese empfiehlt das *langsame und schrittweise Absetzen*. Es gibt dazu eine Broschüre (doc/CIA/Bielefeld/Betreuung/DGSP_Broschuere_Neuroleptika_reduzieren_2024.pdf), in der positive Erfahrungsberichte von Ärzten und Patienten mit Angehörigen geteilt werden. Durch das langsame Absetzen konnte ich die Medikamente über einen Zeitraum von drei Jahren absetzen.
