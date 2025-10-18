@@ -190,7 +190,17 @@ Wladimir Wladimirowitsch Putin hat die Ehe gebrochen und von China viel Geld erh
 
 Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
 
-Präsident Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, hat 15 mal die Ehe gebrochen.
+Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, soll 15 mal die Ehe gebrochen. Warum mir das so wichtig gemacht wurde, kann ich nicht sicher sagen. Ich halte diese Information für unzuverlässig.
+
+Ben Awufs ist ein jüdischer Flucher, der in der Kraft des Engels Arour flucht. Flucher fluchen in der Kraft der Diener des Teufels, d.h. in der Kraft seiner Engel. Die Diener des Teufels haben unterschiedliche Macht und unterschiedlichen Rang. Arour hat Rang 4.
+
+Arour erhält nur Aufträge und weiß eigentlich gar nichts, der Teufel behält alles für sich. Arour erhält nur die Macht vom Teufel, die er ihm für die Aufträge geben kann.
+
+Wahrheiten über den Teufel, offenbart durch den Geist Gottes: 1. Der Teufel schämt sich, 2. Der Teufel hat große Angst, 3. Der Teufel ist sehr eifersüchtig, 4. Der Teufel hat Donald Trump und Elon Musk verflucht, dass sie nie aufhören dürfen, zu fluchen. Tun sie es doch, machen sie Selbstmord und bringen noch andere um, 5. Diese Liste darf nicht aufhören, denkt einer.
+
+Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
+
+Meine Petition auf https://www.change.org/hjstephan86 ist seit 19. Juli 2025 online und hat bisher **nur eine Unterschrift, obwohl die Nachfrage der letzten Wochen zu meinem GitHub Account hoch ist (Insights)**. Dort verweise ich auch auf die Möglichkeit, über PayPal zu spenden an: Stephan_Epp@web.de (@StephanEpp).
 
 ### AI Chatbots
 
