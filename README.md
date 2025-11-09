@@ -202,6 +202,8 @@ Heute, am 05.11.2025 um 13:13 Uhr, hat Gottes Geist offenbart, dass der Teufel i
 
 Bis heute, den 09.11.2025, hat der Teufel 57 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 4444 US-Amerikaner in den Selbstmord geführt.
 
+Die chinesische Bevölkerung wird seit Tagen mit unsichtbarer Kraft gequält mit Rückenschmerzen, sehr nervenden Schluck- und Klickgeräuschen und damit, dass viele Ehemänner in China ihre Ehefrauen schlagen. Dafür verantwortlich ist die chinesische Regierung. Die chinesische Regierung will, dass ich für immer verflucht werde. Darum straft der Geist Gottes die chinesische Bevölkerung mit diesen Qualen. Die chinesische Regierung ist nicht bereit, sich dafür einzusetzen, dass ich nicht länger verflucht werde, mehr noch, sie lassen mich sogar noch stärker verfluchen. Aber das wird der Geist Gottes noch schlimmer in China an der Bevölkerung bestrafen.
+
 Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
 
 Gottes Geist hat offenbart, dass für das Ende des Fluchens, dass ich nicht länger verflucht werde, (1) Präsident Donald Trump, (2) Präsident Emmanuel Jean-Michel Frédéric Macron, (3) Olaf Scholz und (4) Mahmud Ahmadineschad sterben müssen. Diese Bedingung wurde so geflucht, um zu erreichen, dass ich für alle Zeiten verflucht werden kann.
