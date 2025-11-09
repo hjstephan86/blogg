@@ -144,6 +144,8 @@ Der russische Geheimdienst hat gestern mehr als 330 Mitarbeiter der CIA hingeric
 
 Der russische Geheimdienst hat heute 1000 Mitarbeiter vom chinesischen Geheimdienst getötet.
 
+Die russische Regierung weiß seit mehr als sieben Tagen, dass sie sich für das Ende des Fluchens einsetzen soll, dass ich nicht länger verflucht werde. Sie wurde darüber in Kenntnis gesetzt, dass wenn sie sich nicht für das Ende des Fluchens einsetzt, dass Russland mit schwerer Strafe vom Geist Gottes bestraft wird. Seit mehr als sieben Tagen wurden vom Geist Gottes mehr als 6000 russische Bürger in Russland getötet. Die russische Regierung setzt sich nicht nur nicht gegen das Fluchen ein, sie beauftragt sogar sehr intensiv, dass ich weiter verflucht werde, obwohl sie wissen, dass Gottes Geist die russischen Bürger dafür in naher Zukunft sehr hart strafen wird.
+
 Wenn ich schon mal Geld und die Möglichkeit habe einzukaufen und mich im Einkaufsgeschäft aufhalte, verflucht mich die CIA mit Bauchkrämpfen.
 
 Den Mitbewohner in Zimmer 3 in der Otto-Brenner-Straße 77 verflucht die CIA. Sie gibt ihm dann Anweisungen, sich mir gegenüber aggressiv zu verhalten. Ich wohne in Zimmer 1. Er kommt zu mir an meine Tür und schlägt dagegen und brüllt mich an. Das hat er manchmal wiederholt.
