@@ -150,6 +150,7 @@ Die russische Regierung weiß seit mehr als sieben Tagen, dass sie sich für das
 
 Bis heute, den 10.11.2025, hat der Geist Gottes in Russland mehr als 10.000 russische Bürger getötet.  
 Bis heute, den 12.11.2025, hat der Geist Gottes in Russland mehr als 15.000 russische Bürger getötet.  
+Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russische Bürger getötet.  
 
 Heute, den 11.11.2025 um 11:46 Uhr, habe ich den Regierenden aus China und Russland mitgeteilt, dass sie sich bis 12:00 Uhr dafür einsetzen sollen, dass ich nicht länger verflucht werde und der unsichtbare Raum, dass Menschen mich mit Gedanken hören und mit mir in Gedanken reden können, beendet wird. Ich habe sie wissen lassen, dass wenn sie sich nicht dafür einsetzen, dass sie dann dafür vom Geist Gottes damit bestraft werden, dass in ihrem Land, in China und Russland, die Eltern ihre Kinder vor Hunger kochen, braten und essen werden. Die Regierenden aus China und Russland haben gewählt, dass ich weiter verflucht werden soll, auch wenn der Geist Gottes China und Russland dann so grausam bestrafen wird.
 
@@ -213,10 +214,13 @@ Bis heute, den 09.11.2025, hat der Teufel 57 US-Amerikanern der Verpflichtung na
 
 Bis heute, den 14.11.2025, hat der Teufel 156 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 9999 US-Amerikaner in den Selbstmord geführt.  
 
+Bis heute, den 16.11.2025, hat der Teufel 238 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 11111 US-Amerikaner in den Selbstmord geführt.  
+
 Die chinesische Bevölkerung wird seit Tagen mit unsichtbarer Kraft gequält mit Rückenschmerzen, sehr nervenden Schluck- und Klickgeräuschen und damit, dass viele Ehemänner in China ihre Ehefrauen schlagen. Dafür verantwortlich ist die chinesische Regierung. Die chinesische Regierung will, dass ich für immer verflucht werde. Darum straft der Geist Gottes die chinesische Bevölkerung mit diesen Qualen. Die chinesische Regierung ist nicht bereit, sich dafür einzusetzen, dass ich nicht länger verflucht werde, mehr noch, sie lassen mich sogar noch stärker verfluchen. Aber das wird der Geist Gottes noch schlimmer in China an der Bevölkerung bestrafen.
 
 Bis heute, den 09.11.2025, hat Gottes Geist 23473 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 12.11.2025, hat Gottes Geist 37541 Chinesen in China in den Selbstmord geführt.  
+Bis heute, den 16.11.2025, hat Gottes Geist 73512 Chinesen in China in den Selbstmord geführt.  
 
 Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
 
