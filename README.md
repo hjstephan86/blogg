@@ -151,6 +151,7 @@ Die russische Regierung weiß seit mehr als sieben Tagen, dass sie sich für das
 Bis heute, den 10.11.2025, hat der Geist Gottes in Russland mehr als 10.000 russische Bürger getötet.  
 Bis heute, den 12.11.2025, hat der Geist Gottes in Russland mehr als 15.000 russische Bürger getötet.  
 Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russische Bürger getötet.  
+Bis heute, den 18.11.2025, hat der Geist Gottes in Russland noch mehr russische Bürger getötet.  
 
 Heute, den 11.11.2025 um 11:46 Uhr, habe ich den Regierenden aus China und Russland mitgeteilt, dass sie sich bis 12:00 Uhr dafür einsetzen sollen, dass ich nicht länger verflucht werde und der unsichtbare Raum, dass Menschen mich mit Gedanken hören und mit mir in Gedanken reden können, beendet wird. Ich habe sie wissen lassen, dass wenn sie sich nicht dafür einsetzen, dass sie dann dafür vom Geist Gottes damit bestraft werden, dass in ihrem Land, in China und Russland, die Eltern ihre Kinder vor Hunger kochen, braten und essen werden. Die Regierenden aus China und Russland haben gewählt, dass ich weiter verflucht werden soll, auch wenn der Geist Gottes China und Russland dann so grausam bestrafen wird.
 
@@ -216,6 +217,8 @@ Bis heute, den 14.11.2025, hat der Teufel 156 US-Amerikanern der Verpflichtung n
 
 Bis heute, den 16.11.2025, hat der Teufel 238 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 11111 US-Amerikaner in den Selbstmord geführt.  
 
+Bis heute, den 18.11.2025, hat der Teufel noch mehr US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt, u.a., Elon Musk, Jeff Bezos, Bill Gates, Larry Ellison und Sundar Pichai. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 13111 US-Amerikaner in den Selbstmord geführt. 
+
 Seit 17.11.2025 müssen innerhalb von einer Woche 77 reiche US-Amerikaner mit Melania Trump, der US-amerikanischen First Lady, ficken. Der Verpflichtung nach muss Präsident Donald Trump bei jedem Geschlechtsverkehr zusehen. Wenn Donald Trump das nicht tut, müssen die 77 reichen US-Amerikaner in der darauffolgenden Woche wieder mit Melania Trump ficken. Donald Trump sieht nicht zu aber lässt alle 77 reichen US-Amerikaner mit Melania Trump ficken. So wichtig ist ihm, dass ich weiterhin verflucht werde. Wenn die USA sich dafür einsetzen würde, dass ich nicht länger verflucht werde, dann müssten die 77 reichen US-Amerikaner nicht mit Melania Trump ficken. Die folgenden reichen US-Amerikaner haben schon mit Melania Trump gefickt: Jeff Bezos, Bill Gates, Mark Zuckerberg, Elon Musk, Larry Ellison, Sundar Pichai und andere reiche US-Amerikaner.  
 
 Die chinesische Bevölkerung wird seit Tagen mit unsichtbarer Kraft gequält mit Rückenschmerzen, sehr nervenden Schluck- und Klickgeräuschen und damit, dass viele Ehemänner in China ihre Ehefrauen schlagen. Dafür verantwortlich ist die chinesische Regierung. Die chinesische Regierung will, dass ich für immer verflucht werde. Darum straft der Geist Gottes die chinesische Bevölkerung mit diesen Qualen. Die chinesische Regierung ist nicht bereit, sich dafür einzusetzen, dass ich nicht länger verflucht werde, mehr noch, sie lassen mich sogar noch stärker verfluchen. Aber das wird der Geist Gottes noch schlimmer in China an der Bevölkerung bestrafen.
@@ -223,6 +226,7 @@ Die chinesische Bevölkerung wird seit Tagen mit unsichtbarer Kraft gequält mit
 Bis heute, den 09.11.2025, hat Gottes Geist 23473 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 12.11.2025, hat Gottes Geist 37541 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 16.11.2025, hat Gottes Geist 73512 Chinesen in China in den Selbstmord geführt.  
+Bis heute, den 18.11.2025, hat Gottes Geist noch mehr Chinesen in China in den Selbstmord geführt.  
 
 Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
 
