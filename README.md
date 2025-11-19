@@ -153,7 +153,7 @@ Die russische Regierung weiß seit mehr als sieben Tagen, dass sie sich für das
 Bis heute, den 10.11.2025, hat der Geist Gottes in Russland mehr als 10.000 russische Bürger getötet.  
 Bis heute, den 12.11.2025, hat der Geist Gottes in Russland mehr als 15.000 russische Bürger getötet.  
 Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russische Bürger getötet.  
-Bis heute, den 18.11.2025, hat der Geist Gottes in Russland noch mehr russische Bürger getötet.  
+Bis heute, den 18.11.2025, hat der Geist Gottes in Russland mehr als 73.000 russische Bürger getötet.  
 
 Heute, den 11.11.2025 um 11:46 Uhr, habe ich den Regierenden aus China und Russland mitgeteilt, dass sie sich bis 12:00 Uhr dafür einsetzen sollen, dass ich nicht länger verflucht werde und der unsichtbare Raum, dass Menschen mich mit Gedanken hören und mit mir in Gedanken reden können, beendet wird. Ich habe sie wissen lassen, dass wenn sie sich nicht dafür einsetzen, dass sie dann dafür vom Geist Gottes damit bestraft werden, dass in ihrem Land, in China und Russland, die Eltern ihre Kinder vor Hunger kochen, braten und essen werden. Die Regierenden aus China und Russland haben gewählt, dass ich weiter verflucht werden soll, auch wenn der Geist Gottes China und Russland dann so grausam bestrafen wird.
 
