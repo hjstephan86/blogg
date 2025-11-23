@@ -240,6 +240,8 @@ Bis heute, den 16.11.2025, hat Gottes Geist 73512 Chinesen in China in den Selbs
 Bis heute, den 18.11.2025, hat Gottes Geist noch mehr Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 22.11.2025, hat Gottes Geist 112.000 Chinesen in China in den Selbstmord geführt.
 
+Seit etwa drei Tagen rauschen meine Kopfhörer bei voller Lautstärke sehr unangenehm. Wenn China das nicht ändert, stirbt Xi Jinping.
+
 Emmanuel Jean-Michel Frédéric Macron, Staatspräsident der Französischen Republik, sei tot und der Eiffelturm in Paris würde 2026 nicht mehr stehen. Warum? Wer hat Interesse daran, dass ich diese Behauptungen veröffentliche?
 
 Gottes Geist hat offenbart, dass für das Ende des Fluchens, dass ich nicht länger verflucht werde, (1) Präsident Donald Trump, (2) Präsident Emmanuel Jean-Michel Frédéric Macron, (3) Olaf Scholz und (4) Mahmud Ahmadineschad sterben müssen. Diese Bedingung wurde so geflucht, um zu erreichen, dass ich für alle Zeiten verflucht werden kann.
