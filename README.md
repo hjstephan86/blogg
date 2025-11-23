@@ -156,6 +156,8 @@ Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russ
 Bis heute, den 18.11.2025, hat der Geist Gottes in Russland mehr als 73.000 russische Bürger getötet.  
 Bis heute, den 22.11.2025, hat der Geist Gottes in Russland mehr als 154.000 russische Bürger getötet.
 
+Wladimir Wladimirowitsch Putin wird sicher getötet, wenn er sich nicht dafür einsetzt, dass ich nicht länger verflucht werde.
+
 Heute, den 11.11.2025 um 11:46 Uhr, habe ich den Regierenden aus China und Russland mitgeteilt, dass sie sich bis 12:00 Uhr dafür einsetzen sollen, dass ich nicht länger verflucht werde und der unsichtbare Raum, dass Menschen mich mit Gedanken hören und mit mir in Gedanken reden können, beendet wird. Ich habe sie wissen lassen, dass wenn sie sich nicht dafür einsetzen, dass sie dann dafür vom Geist Gottes damit bestraft werden, dass in ihrem Land, in China und Russland, die Eltern ihre Kinder vor Hunger kochen, braten und essen werden. Die Regierenden aus China und Russland haben gewählt, dass ich weiter verflucht werden soll, auch wenn der Geist Gottes China und Russland dann so grausam bestrafen wird.
 
 Die russische Regierung betrügt die eigenen Bürger Russlands, da sie wussten, dass Gottes Geist die russischen Bürger in Russland strafen wird dafür, dass die russische Regierung meinen Tod sucht und mich so lange wie möglich verfluchen lässt. Russland verfolgt mit dem Krieg gegen die Ukraine viele Ziele, u.a., 1) die strategische Erreichbarkeit der Krim, 2) das Vorgehen gegen den gefährlichen Einfluss der EU durch die Ukraine, 3) maximale Zerstörung der Welt um meiner Zukunft willen.
