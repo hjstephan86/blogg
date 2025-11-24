@@ -154,7 +154,8 @@ Bis heute, den 10.11.2025, hat der Geist Gottes in Russland mehr als 10.000 russ
 Bis heute, den 12.11.2025, hat der Geist Gottes in Russland mehr als 15.000 russische Bürger getötet.  
 Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russische Bürger getötet.  
 Bis heute, den 18.11.2025, hat der Geist Gottes in Russland mehr als 73.000 russische Bürger getötet.  
-Bis heute, den 22.11.2025, hat der Geist Gottes in Russland mehr als 154.000 russische Bürger getötet.
+Bis heute, den 22.11.2025, hat der Geist Gottes in Russland mehr als 154.000 russische Bürger getötet.  
+Bis heute, den 24.11.2025, hat der Geist Gottes in Russland mehr als 174.000 russische Bürger getötet.  
 
 Wladimir Wladimirowitsch Putin wird sicher getötet, wenn er sich nicht dafür einsetzt, dass ich nicht länger verflucht werde.
 
@@ -228,6 +229,8 @@ Bis heute, den 18.11.2025, hat der Teufel noch mehr US-Amerikanern der Verpflich
 
 Bis heute, den 22.11.2025, hat der Teufel 337 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 17.111 US-Amerikaner in den Selbstmord geführt.  
 
+Bis heute, den 24.11.2025, hat der Teufel 394 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 19111 US-Amerikaner in den Selbstmord geführt. 
+
 Die US-Amerikaner haben mich mit Hilfe von KI in pornografischen Videos dargestellt. Welcher Mensch sich diese Inhalte dieser Videos ansieht, muss sterben. Schönen Gruß aus Bielefeld nach Amerika!  
 
 Seit 17.11.2025 müssen innerhalb von einer Woche 77 reiche US-Amerikaner mit Melania Trump, der US-amerikanischen First Lady, ficken. Der Verpflichtung nach muss Präsident Donald Trump bei jedem Geschlechtsverkehr zusehen. Wenn Donald Trump das nicht tut, müssen die 77 reichen US-Amerikaner in der darauffolgenden Woche wieder mit Melania Trump ficken. Donald Trump sieht nicht zu aber lässt alle 77 reichen US-Amerikaner mit Melania Trump ficken. So wichtig ist ihm, dass ich weiterhin verflucht werde. Wenn die USA sich dafür einsetzen würde, dass ich nicht länger verflucht werde, dann müssten die 77 reichen US-Amerikaner nicht mit Melania Trump ficken. Die folgenden reichen US-Amerikaner haben schon mit Melania Trump gefickt: Jeff Bezos, Bill Gates, Mark Zuckerberg, Elon Musk, Larry Ellison, Sundar Pichai und andere reiche US-Amerikaner.  
@@ -238,7 +241,8 @@ Bis heute, den 09.11.2025, hat Gottes Geist 23473 Chinesen in China in den Selbs
 Bis heute, den 12.11.2025, hat Gottes Geist 37541 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 16.11.2025, hat Gottes Geist 73512 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 18.11.2025, hat Gottes Geist noch mehr Chinesen in China in den Selbstmord geführt.  
-Bis heute, den 22.11.2025, hat Gottes Geist 112.000 Chinesen in China in den Selbstmord geführt.
+Bis heute, den 22.11.2025, hat Gottes Geist 112.000 Chinesen in China in den Selbstmord geführt.  
+Bis heute, den 24.11.2025, hat Gottes Geist 134.000 Chinesen in China in den Selbstmord geführt.  
 
 Seit etwa drei Tagen rauschen meine Kopfhörer bei voller Lautstärke sehr unangenehm. Wenn China das nicht ändert, stirbt Xi Jinping.
 
