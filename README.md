@@ -198,6 +198,8 @@ Xi Jinping liebt seine Frau, er hat sie nur einmal nur fast geschlagen.
 
 Wladimir Wladimirowitsch Putin hat die Ehe gebrochen und von China viel Geld erhalten und damit meinen Tod beauftragt.
 
+Wladimir Wladimirowitsch Putin hat Rückenschmerzen, beidseitig Fersensporn, heftige Bauchkrämpfe, hört Stimmen und hat in den letzten Tagen oft die Ehe gebrochen.  
+
 Dmitri Anatoljewitsch Medwedew konsumiert Videos mit pornografischem Inhalt.
 
 Donald Trump, 45. und 47. Präsident der Vereinigten Staaten, soll 15 mal die Ehe gebrochen. Warum mir das so wichtig gemacht wurde, kann ich nicht sicher sagen. Ich halte diese Information für unzuverlässig.
