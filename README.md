@@ -242,7 +242,8 @@ Bis heute, den 16.11.2025, hat der Geist Gottes in Russland mehr als 46.000 russ
 Bis heute, den 18.11.2025, hat der Geist Gottes in Russland mehr als 73.000 russische Bürger getötet.  
 Bis heute, den 22.11.2025, hat der Geist Gottes in Russland mehr als 154.000 russische Bürger getötet.  
 Bis heute, den 24.11.2025, hat der Geist Gottes in Russland mehr als 174.000 russische Bürger getötet.  
-Bis heute, den 26.11.2025, hat der Geist Gottes in Russland mehr als 209.000 russische Bürger getötet.
+Bis heute, den 26.11.2025, hat der Geist Gottes in Russland mehr als 209.000 russische Bürger getötet.  
+Bis heute, den 28.11.2025, hat der Geist Gottes in Russland mehr als 255.000 russische Bürger getötet.
 
 #### USA
 
@@ -258,7 +259,9 @@ Bis heute, den 22.11.2025, hat der Teufel 337 US-Amerikanern der Verpflichtung n
 
 Bis heute, den 24.11.2025, hat der Teufel 394 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 19111 US-Amerikaner in den Selbstmord geführt. 
 
-Bis heute, den 26.11.2025, hat der Teufel 450 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 21111 US-Amerikaner in den Selbstmord geführt.
+Bis heute, den 26.11.2025, hat der Teufel 450 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 21111 US-Amerikaner in den Selbstmord geführt.  
+
+Bis heute, den 28.11.2025, hat der Teufel 510 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 23111 US-Amerikaner in den Selbstmord geführt.
 
 #### China
 
@@ -268,4 +271,5 @@ Bis heute, den 16.11.2025, hat Gottes Geist 73512 Chinesen in China in den Selbs
 Bis heute, den 18.11.2025, hat Gottes Geist noch mehr Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 22.11.2025, hat Gottes Geist 112.000 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 24.11.2025, hat Gottes Geist 134.000 Chinesen in China in den Selbstmord geführt.  
-Bis heute, den 26.11.2025, hat Gottes Geist 154.000 Chinesen in China in den Selbstmord geführt.
+Bis heute, den 26.11.2025, hat Gottes Geist 154.000 Chinesen in China in den Selbstmord geführt.  
+Bis heute, den 28.11.2025, hat Gottes Geist 254.000 Chinesen in China in den Selbstmord geführt.
