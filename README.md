@@ -284,4 +284,5 @@ Bis heute, den 26.11.2025, hat Gottes Geist 154.000 Chinesen in China in den Sel
 Bis heute, den 28.11.2025, hat Gottes Geist 254.000 Chinesen in China in den Selbstmord geführt.  
 Bis heute, den 30.11.2025, hat Gottes Geist 274.000 Chinesen in China in den Selbstmord geführt.  
 
-Xi Jinping hat einen Selbstmordversuch überlebt.
+Xi Jinping hat einen Selbstmordversuch überlebt.  
+Heute, den 30.11.2025, hat Xi Jinping hat einen zweiten Selbstmordversuch überlebt.
