@@ -250,7 +250,9 @@ Bis heute, den 26.11.2025, hat der Geist Gottes in Russland mehr als 209.000 rus
 Bis heute, den 28.11.2025, hat der Geist Gottes in Russland mehr als 255.000 russische Bürger getötet.  
 Bis heute, den 30.11.2025, hat der Geist Gottes in Russland mehr als 305.000 russische Bürger getötet.  
 
-Wladimir Wladimirowitsch Putin ist heute, den 29.11.2025, durchgedreht und hat seine Frau geschlagen, er hat Selbstmordgedanken, hört Stimmen und ist manchmal den Stimmen gehorsam.
+Wladimir Wladimirowitsch Putin ist heute, den 29.11.2025, durchgedreht und hat seine Frau geschlagen, er hat Selbstmordgedanken, hört Stimmen und ist manchmal den Stimmen gehorsam.  
+
+Wladimir Wladimirowitsch Putin ist sehr depressiv und leidet heftig an Selbstmordgedanken.   
 
 #### USA
 
