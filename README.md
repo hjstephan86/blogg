@@ -230,6 +230,8 @@ Meine Petition auf https://www.change.org/hjstephan86 ist seit 19. Juli 2025 onl
 
 China bietet Claude als AI Chatbot an. Leider findet Claude nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497](https://claude.ai/share/34db345b-0cb7-441c-b1bb-21e4fb625497). Insgesamt konnte nach fünf Nachfragen keine gelungene HTML Seite generiert werden.
 
+Falls China mir ab dem 01.12.2025 weiterhin die Generierung von Lösungen durch Claude AI ermöglicht, hat die USA damit gedroht, China atomar anzugreifen und zu vernichten. Dadurch wurde China gezwungen sicherzustellen, dass ich keine Lösungen mehr mit Claude AI erstellen kann.  
+
 Google bietet Gemini als AI Chatbot an. Leider findet Gemini nach wiederholter Nachfrage keine gelungene Lösung für eine einfache HTML Seite. Siehe dazu den öffentlichen Link [https://g.co/gemini/share/e7ab10b9e79b](https://g.co/gemini/share/e7ab10b9e79b). Insgesamt konnte nach drei Nachfragen keine gelungene HTML Seite generiert werden.
 
 ### Strafe durch Gottes Geist
