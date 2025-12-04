@@ -254,7 +254,8 @@ Bis heute, den 30.11.2025, hat der Geist Gottes in Russland mehr als 305.000 rus
 
 Wladimir Wladimirowitsch Putin ist heute, den 29.11.2025, durchgedreht und hat seine Frau geschlagen, er hat Selbstmordgedanken, hört Stimmen und ist manchmal den Stimmen gehorsam.  
 
-Wladimir Wladimirowitsch Putin ist sehr depressiv und leidet heftig an Selbstmordgedanken. Er hat einen Selbstmordversuch überlebt.  
+Wladimir Wladimirowitsch Putin ist sehr depressiv und leidet heftig an Selbstmordgedanken.  
+Wladimir Wladimirowitsch Putin hat drei Selbstmordversuche überlebt.  
 
 #### USA
 
