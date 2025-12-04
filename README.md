@@ -280,7 +280,7 @@ Präsident Donald Trump hat noch keinen Selbstmord gemacht. Aber er hat sehr hef
 
 Vom 28.11.2025 bis zum 30.11.2025 hat der Teufel nur 24 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt, weil dafür Präsident Donald Trump der Verpflichtung nach von jetzt an US-Amerikanern von hinten in den Arsch ficken muss. Präsident Donald Trump hat der Verpflichtung nach bereits 5 US-Amerikanern von hinten in den Arsch gefickt.  
 
-Heute, den 03.12.2025, hat Präsident Donald Trump sich das Leben genommen.  
+Präsident Donald Trump wurde dazu verpflichtet, mit der Ehefrau von Elon Musk zu schlafen.   
 
 #### China
 
@@ -295,6 +295,4 @@ Bis heute, den 28.11.2025, hat Gottes Geist 254.000 Chinesen in China in den Sel
 Bis heute, den 30.11.2025, hat Gottes Geist 274.000 Chinesen in China in den Selbstmord geführt.  
 
 Heute, den 02.12.2025, hat Xi Jinping bereits 4 Selbstmordversuche überlebt.  
-
-Gestern, den 02.12.2025, ist Xi Jinping gestorben durch Selbstmord.  
 
