@@ -257,6 +257,8 @@ Wladimir Wladimirowitsch Putin ist heute, den 29.11.2025, durchgedreht und hat s
 Wladimir Wladimirowitsch Putin ist sehr depressiv und leidet heftig an Selbstmordgedanken.  
 Wladimir Wladimirowitsch Putin hat drei Selbstmordversuche überlebt. Er hat gestern geheult und er hat heute geheult. Wladimir Wladimirowitsch Putin hat die Ehefrau von Präsident Donald Trump gefickt.  
 
+Keine andere Nation wie die russische hat sich so nachhaltig aufgelehnt gegen Gott. Deshalb wird keine andere Nation wie die russische in der Hölle so nachhaltig gequält werden, jeden Tag, die ganze Ewigkeit. Wladimir Wladimirowitsch Putin wurde gewarnt, sich nicht weiter gegen Gott aufzulehnen. Er hat es schlimmer getan als alle russischen Führer vor ihm.  
+
 #### USA
 
 Bis heute, den 09.11.2025, hat der Teufel 57 US-Amerikanern der Verpflichtung nach von hinten in den Arsch gefickt. Der Verpflichtung nach hat der Teufel außerdem seit dem 05.11.2025 mindestens 4444 US-Amerikaner in den Selbstmord geführt.  
