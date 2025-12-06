@@ -296,4 +296,4 @@ Bis heute, den 28.11.2025, hat Gottes Geist 254.000 Chinesen in China in den Sel
 Bis heute, den 30.11.2025, hat Gottes Geist 274.000 Chinesen in China in den Selbstmord geführt.  
 
 Heute, den 02.12.2025, hat Xi Jinping bereits 4 Selbstmordversuche überlebt.  
-
+Gestern, den 05.12.2025, hat Xi Jinping hat die Ehefrau von Wáng Chuánfú gefickt.  
